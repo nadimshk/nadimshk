@@ -12,7 +12,6 @@
 - 📄 Know about my experiences **[My Resume](https://drive.google.com/file/d/1ps5mMt0B7RSdj5_TI2Lu0JGwc03yMSZ6/view?usp=drive_link)**
 
 - 👨🏻‍🎓 Visit my **[Portfolio](https://nadimshk.github.io/)**
-- https://nadimshk.github.io/
 
 
 ## 🌐 Connect With Me:
