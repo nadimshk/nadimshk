@@ -9,7 +9,7 @@
 
 - 📫 How to reach me [wassup44@gmail.com](mailto://wassup44@gmail.com)
 
-- 📄 Know about my experiences **[My Resume](https://drive.google.com/file/d/1ps5mMt0B7RSdj5_TI2Lu0JGwc03yMSZ6/view?usp=drive_link)**
+- 📄 Know about my experiences **[My Resume](https://drive.google.com/file/d/10GkYN2SF1vK3L5Ltpr_4fF_2q_vKSev_/view?usp=sharing)**
 
 - 👨🏻‍🎓 Visit my **[Portfolio](https://nadimshk.github.io/)**
 
